@@ -1,3 +1,1 @@
-Greetings, Professor Falken!
-...
-How about a nice game of chess?
+For business inquires please consider contacting me at mail(at)jcmallin(dot)com.
